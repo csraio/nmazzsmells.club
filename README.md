@@ -1,2 +1,2 @@
 # nmazzsmells.club
-shit website to make fun of Nmazz and also to practice making my website-making skills.
+shit website to honor Nmazz and also to practice my website-making skills.
